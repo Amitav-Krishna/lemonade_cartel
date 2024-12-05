@@ -4,7 +4,6 @@ date: 2024-12-04
 draft: false
 ---
 
-
 It's summer break! You decide you're going to embrace that entrepeneurial fire inside of you and finally start living the ***✨American dream✨***; you're going to start your own **business**!
  Your mom takes you to Walmart and you spend all of the allowance you've saved up since Christmas and buy a plastic jug,  some lemons, and some sugar. 
 You come home and like the **dirty little capitalist** you are, you get to work and soon enough, you serve your first customer. 
@@ -12,7 +11,6 @@ It's everything you've ever dreamed of and people can't get enough of your argua
 - Challenge his alter ego, ***Little Timmy***, to a rap battle
 - Commandeer your mum's credit card and buy enough lemons to secure an **exclusive** deal with the local Walmart, just like they taught you in Sunday school
 - Sell your lemonade for dirt cheap, hoping to run Timmy out of business, but you also run the risk of accidentally bankrupting yourself<br><br>
-
 All of these options kind of suck, but there is another ***✨️secret✨️*** fourth option: you talk to Timmy, and you both decide to **increase** your prices to 30 cents a glass and reduce the amount of lemon juice and sugar in the lemonade; with no one else to turn to, the consumers just have to deal with your increased prices and lower quality lemonade. Congratulations, you've just started a **cartel**.<br><br>
 
 ---
@@ -21,7 +19,7 @@ Now that you and Timmy are working together, you two agree that you'll take Oak 
 
 ---
 
-With your wagon full of piles of cash, you begin to buy out smaller family-owned lemonade stands. Soon, all of the lemonade stands in Littleville, AL belong to you and Timmy. Now customers don't have to worry about drastic fluctuations in price or quality, because it's all the same! Mrs. Johnson, frustrated with what she sees as an attack on her two greatest loves, lemonade and free market capitalism, begins to squeeze her own lemonade at home, paving the way for a boycott of your lemonade in your neighbourhood. You manage to *convince* Walmart to reduce the amount of lemons it sells to consumers. You lobby town hall to restrict the smaller upstart lemonade competitors, citing health concerns. 
+With your wagon full of piles of cash, you begin to buy out smaller family-owned lemonade stands. Soon, all of the lemonade stands in Littleville, AL belong to you and Timmy. Now customers don't have to worry about drastic fluctuations in price or quality, because it's all the same! Mrs. Johnson, frustrated with what she sees as an attack on her two greatest loves, lemonade and free market capitalism, begins to squeeze her own lemonade at home, paving the way for a boycott of your lemonade in your neighbourhood. You manage to *convince* Walmart to reduce the amount of lemons it sells to consumers. You lobby town hall to restrict the smaller upstart lemonade competitors, citing health concerns. You copyright the lemonade, and hire teams of ruthless lawyers to tear apart violators of your intellectual property like bloodhounds on a steak.
 
 ---
 
@@ -29,4 +27,4 @@ The people have had enough. Mrs. Johnson's backyard operation inspires a quiet r
 
 ---
 
-You may be wondering what happens next? That, my friend, is up to you.
+You may be wondering, *"What happens next?"* That, my friend, is up to you.
