@@ -12,6 +12,7 @@ It's everything you've ever dreamed of and people can't get enough of your argua
 - Challenge his alter ego, ***Little Timmy***, to a rap battle
 - Commandeer your mum's credit card and buy enough lemons to secure an **exclusive** deal with the local Walmart, just like they taught you in Sunday school
 - Sell your lemonade for dirt cheap, hoping to run Timmy out of business, but you also run the risk of accidentally bankrupting yourself<br><br>
+
 All of these options kind of suck, but there is another ***✨️secret✨️*** fourth option: you talk to Timmy, and you both decide to **increase** your prices to 30 cents a glass and reduce the amount of lemon juice and sugar in the lemonade; with no one else to turn to, the consumers just have to deal with your increased prices and lower quality lemonade. Congratulations, you've just started a **cartel**.<br><br>
 
 ---
