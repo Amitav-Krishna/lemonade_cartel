@@ -4,7 +4,7 @@ date: 2024-12-04
 draft: false
 ---
 
-It's summer break! You decide you're going to embrace that entrepreneurial fire inside of you and finally start living the ***✨American dream✨***; you're going to start your own **business**!
+It's summer break! You decide you're going to embrace that entrepreneurial fire inside of you and finally start living the ***American dream***; you're going to start your own **business**!
  Your mom takes you to Walmart and you spend all of the allowance you've saved up since Christmas and buy a plastic jug, some lemons, and some sugar. 
 You come home, and like the **dirty little capitalist** you are, you get to work and soon enough, you serve your first customer. 
 It's everything you've ever dreamed of and more! People can't get enough of your arguably refreshing beverage, and you make back all of your money and **more**. However, like anything good in life, it doesn't last for long: enter **Timmy**. Apart from his horrific, oddly dragon-shaped birthmarks, Timbifer is also your **arch-nemesis**. He sees your stand and decides to copy your idea, except his lemonade he sells for 5 cents cheaper, stealing most of your business. You now have three options:<br><br>
@@ -13,11 +13,11 @@ It's everything you've ever dreamed of and more! People can't get enough of your
 - Commandeer your mum's credit card and buy enough lemons to secure an **exclusive** deal with the local Walmart, just like they taught you in Sunday school
 - Sell your lemonade for dirt cheap, hoping to run Timmy out of business, but you also run the risk of accidentally bankrupting yourself<br><br>
 
-All of these options kind of suck, but there is another ***✨️secret✨️*** fourth option: you talk to Timmy, and you both decide to **increase** your prices to 30 cents a glass while reducing the amount of lemon juice and sugar; with no one else to turn to, the consumers just have to deal with your increased prices and lower quality lemonade. Congratulations, you've just started a **cartel**.<br><br>
+All of these options kind of suck, but there is another ***️secret️*** fourth option: you talk to Timmy, and you both decide to **increase** your prices to 30 cents a glass while reducing the amount of lemon juice and sugar; with no one else to turn to, the consumers just have to deal with your increased prices and lower quality lemonade. Congratulations, you've just started a **cartel**.<br><br>
 
 ---
 
-Now that you and Timmy are working together, you two agree that you'll take Oak Road and Birch Lane, while Timmy takes Spruce Drive and Acacia Avenue. You make a deal with Walmart, and they agree to give you a discount on lemons for buying in bulk. Because of your increased profits, you two begin experimenting more. You begin replacing your old, smelly, plastic cups with ***✨️Eco-friendly Recyclable Compostable Bio-Degradable Bamboo Paper Glass Reusable Single-Use Cups✨️***. Timmy starts running a loyalty punch card program, and the masses flock, eager to get that one extra glass of lemonade.
+Now that you and Timmy are working together, you two agree that you'll take Oak Road and Birch Lane, while Timmy takes Spruce Drive and Acacia Avenue. You make a deal with Walmart, and they agree to give you a discount on lemons for buying in bulk. Because of your increased profits, you two begin experimenting more. You begin replacing your old, smelly, plastic cups with ***️Eco-friendly Recyclable Compostable Bio-Degradable Bamboo Paper Glass Reusable Single-Use Cups️***. Timmy starts running a loyalty punch card program, and the masses flock, eager to get that one extra glass of lemonade.
 
 ---
 
